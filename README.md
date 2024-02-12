@@ -17,6 +17,6 @@ I'm pumped to take on new AI adventures and explore uncharted territories togeth
 
 
 - 💬 Ask me about AI
-- 📫 How to reach me: wiem.dali@icloud.com
+- 📫 How to reach me: wiam.dali@icloud.com
 - 👀 Have a look on my apps : https://dev1570.d1uhueq8jnmzqc.amplifyapp.com
 
